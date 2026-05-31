@@ -1,4 +1,4 @@
-# 📋 Sample-Work:
+# 📋 Civil Engineering Sample Work:
 Sample conceptual site plans from previous employment as a civil engineering intern at EIG14T Commercial Real Estate.
 
 ### Site Plan Information:
